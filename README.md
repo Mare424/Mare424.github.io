@@ -1,4 +1,4 @@
-# 5 Types of Cooking Knives
+# 5 Types of Kitchen Knives
 Jay Mason 9-Gonzalez
 
 The first type of knife is the 
@@ -55,3 +55,37 @@ If you’re a minimalist, you may appreciate a utility knife’s do-everything s
 
 The fourth type of the knife is
 Bread Knife
+
+
+
+
+![hi](https://kitchenambition.b-cdn.net/wp-content/uploads/2022/04/misen-bread-knife-740x420.jpg)
+
+
+
+
+The serrated edge of a bread knife makes it perfect for slicing crusty bread without crushing it. It will also work wonders on tomatoes, fruits, tough vegetables, and holiday roasts.
+If you’ve taken up a bread-baking hobby, this is a “must-have” knife. There is no substitute. But the truth is not every kitchen needs one. 
+Most options measure 6-10” long. The serrated edges make them a real bear to sharpen. And it’s probably not worth spending much on a bread knife that only gets used occasionally.Still, even an inexpensive knife like the OXO Good Grips bread knife will keep an edge for up to a year if you’re only using it to cut bread.
+
+
+
+The last type of the knife is
+Cleaver
+
+
+
+
+
+![hi](https://kitchenambition.b-cdn.net/wp-content/uploads/2021/03/6-1024x683.png)
+
+
+
+
+
+A cleaver is the cutting tool of choice for butchery.
+Buying and breaking down larger pieces of meat is a great way to save money, but it isn’t for everyone. You don’t need this knife if butchery isn’t in your plans
+Cleavers are large, rectangular, and heavy. They’re designed to cut through bone. The thick blade adds weight and heft, which makes strong cuts easier on the hands and wrists.
+The curvature of a cleaver’s blade can vary widely based on where that knife was made. For example, 
+Most Chinese-style cleavers feature an almost entirely straight blade. 
+A German cleaver features a more exaggerated curve.
