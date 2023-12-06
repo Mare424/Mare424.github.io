@@ -1,5 +1,4 @@
 # 5 Types of Kitchen Knives
-Jay Mason 9-Gonzalez
 
 The first type of knife is the 
 Chef's Knife
